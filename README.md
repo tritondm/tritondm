@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @tritondm
 - 👀 I’m interested in coding, physics, math
-- 🌱 I’m currently learning wingfoiling, underwater filming
+- 🌱 I’m currently learning windsurfing, underwater filming
 - 💞️ I’m looking to collaborate on .....
 - 📫 How to reach me andreas.kraxner@gmail.com
 
